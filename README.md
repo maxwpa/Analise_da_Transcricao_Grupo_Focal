@@ -1,1 +1,1 @@
-Grupo Focal: Análise da Transcição
+Grupo Focal: Análise da Transcrição
